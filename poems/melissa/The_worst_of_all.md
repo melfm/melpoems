@@ -14,7 +14,7 @@ Only to realize, we are the real monsters\
 And not what was right in front of us\
 We got down on our knees\
 Please be kind and make this stop\
-We took one wrong turn and somehow got sucked into a spiral of dust\
+We took one wrong turn and somehow got sucked into a spiral of dust
 
 Darkness was surprised at the presence of our thoughts\
 We are young until we are not\
@@ -24,7 +24,7 @@ We hate and can never stop\
 We pray when there's no light\
 We fix what seems not right\
 We take what we seek\
-We let our hearts run wild\
+We let our hearts run wild
 
 We try until we fail\
 We laugh until we cry\
